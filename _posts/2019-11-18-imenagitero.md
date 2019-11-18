@@ -3,6 +3,7 @@ permalink : /imenagitero-by-rugamba-cyprien-ft-amasimbi-namakombe
 layout: post
 title: "Imenagitero by Rugamba Cyprien ft Amasimbi n’amakombe"
 categories: Rugamba Cyprien
+comments: true
 ---
 Imenagitero twabyirukanye nk’impanga<br/>
 Imenagitero twabyaranye uw’uburiza<br/>
