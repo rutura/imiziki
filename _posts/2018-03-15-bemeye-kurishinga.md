@@ -6,48 +6,48 @@ categories: Abatangampundu
 ---
 Umva ukuntu bemeye kurushinga
 
-Ayiye ayiye turabemera cyane weee\
+Ayiye ayiye turabemera cyane weee<br/>
 Umva ukuntu bemeye kurushinga (2)
 
-Ubukwe bwiza bageni bahire weee\
-Umva ukuntu bemeye kurushinga\
-Muzabyare muheke, mubyare hungu na kobwa weee\
-Umva ukuntu bemeye kurushinga\
-Nimuvuze impundu, abana bacyuye inganji weee\
+Ubukwe bwiza bageni bahire weee<br/>
+Umva ukuntu bemeye kurushinga<br/>
+Muzabyare muheke, mubyare hungu na kobwa weee<br/>
+Umva ukuntu bemeye kurushinga<br/>
+Nimuvuze impundu, abana bacyuye inganji weee<br/>
 Umva ukuntu bemeye kurushinga
 
-Ayiye ayiye turabemera cyane weee\
+Ayiye ayiye turabemera cyane weee<br/>
 Umva ukuntu bemeye kurushinga (2)
 
-Abemeye kurushinga tubaragije Imana weee\
-Umva ukuntu bemeye kurushinga\
-Tubaragije Imana izababere ingenzi weee\
-Umva ukuntu bemeye kurushinga\
-Impundu zivuge urwunge, amata avune imitozo weee\
+Abemeye kurushinga tubaragije Imana weee<br/>
+Umva ukuntu bemeye kurushinga<br/>
+Tubaragije Imana izababere ingenzi weee<br/>
+Umva ukuntu bemeye kurushinga<br/>
+Impundu zivuge urwunge, amata avune imitozo weee<br/>
 Umva ukuntu bemeye kurushinga
 
-Ayiye ayiye turabemera cyane weee\
+Ayiye ayiye turabemera cyane weee<br/>
 Umva ukuntu bemeye kurushinga (2)
 
-Ngo uyu wemeye kurushinga, amatako abasha inkada weee\
-Umva ukuntu bemeye kurushinga\
-Yemeye kurushinga gakoni k’abakobwa weee\
-Umva ukuntu bemeye kurushinga\
-Gakoni k’abakobwa gatakara ntibatahe weee\
-Umva ukuntu bemeye kurushinga\
-Gatakara ntibatahe batinzwa no kugashaka weee\
+Ngo uyu wemeye kurushinga, amatako abasha inkada weee<br/>
+Umva ukuntu bemeye kurushinga<br/>
+Yemeye kurushinga gakoni k’abakobwa weee<br/>
+Umva ukuntu bemeye kurushinga<br/>
+Gakoni k’abakobwa gatakara ntibatahe weee<br/>
+Umva ukuntu bemeye kurushinga<br/>
+Gatakara ntibatahe batinzwa no kugashaka weee<br/>
 Umva ukuntu bemeye kurushinga
 
-Mama ni nyiraberwa aberwa no guheka weee\
-Umva ukuntu bemeye kurushinga\
-Aberwa no guheka, kubyara bigira Imana weee\
-Umva ukuntu bemeye kurushinga\
-Ababyeyi bavuze impundu, abagabo bivuge imyato weee\
-Umva ukuntu bemeye kurushinga\
-Araje umutangampundu, umuterekamata\
-Umususurutsa ruhimbiiii\
-Umva ukuntu bemeye kurushinga\
+Mama ni nyiraberwa aberwa no guheka weee<br/>
+Umva ukuntu bemeye kurushinga<br/>
+Aberwa no guheka, kubyara bigira Imana weee<br/>
+Umva ukuntu bemeye kurushinga<br/>
+Ababyeyi bavuze impundu, abagabo bivuge imyato weee<br/>
+Umva ukuntu bemeye kurushinga<br/>
+Araje umutangampundu, umuterekamata<br/>
+Umususurutsa ruhimbiiii<br/>
+Umva ukuntu bemeye kurushinga<br/>
 Umva ukuntu bemeye kurushinga
 
-Ayiye ayiye turabemera cyane weee\
+Ayiye ayiye turabemera cyane weee<br/>
 Umva ukuntu bemeye kurushinga (3)

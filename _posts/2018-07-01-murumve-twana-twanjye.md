@@ -4,53 +4,53 @@ layout: post
 title: "Murumve twana twanjye by Rugamba Cyprien"
 categories: Rugamba Cyprien
 ---
-Murumve twana twanjye nabaraze urukundo\
-Murarugire intego mwese aho mujya hose\
-Rubabere umutako mwiza uhora ubaranga\
-Ari amanywa ari na nijoro\
+Murumve twana twanjye nabaraze urukundo<br/>
+Murarugire intego mwese aho mujya hose<br/>
+Rubabere umutako mwiza uhora ubaranga<br/>
+Ari amanywa ari na nijoro<br/>
 Ntihagire ikibakanga we
 
-Muzabona ibibagora bishaka gutambamira urwo rukundo\
-Murabe maso hatagira umwanzi ubacamo icyanzu\
-Murakomeze mutwaze ntabwo nzabahana\
-Nzahorana namwe nsimbura ibibarwanya\
-Wa mwanzi w’icyatwa ujya ubakurura mu cyaha\
-Nzamukubita ijanja mwimure mureba\
-Muhumure naratsinze nimika urukundo\
+Muzabona ibibagora bishaka gutambamira urwo rukundo<br/>
+Murabe maso hatagira umwanzi ubacamo icyanzu<br/>
+Murakomeze mutwaze ntabwo nzabahana<br/>
+Nzahorana namwe nsimbura ibibarwanya<br/>
+Wa mwanzi w’icyatwa ujya ubakurura mu cyaha<br/>
+Nzamukubita ijanja mwimure mureba<br/>
+Muhumure naratsinze nimika urukundo<br/>
 Ntihagire ikibakanga we
 
-Murumve twana twanjye nabaraze urukundo\
-Murarugire intego mwese aho mujya hose\
-Rubabere umutako mwiza uhora ubaranga\
-Ari amanywa ari na nijoro\
+Murumve twana twanjye nabaraze urukundo<br/>
+Murarugire intego mwese aho mujya hose<br/>
+Rubabere umutako mwiza uhora ubaranga<br/>
+Ari amanywa ari na nijoro<br/>
 Ntihagire ikibakanga we
 
-Murizihirane cyane mumenye ko undi ari umwana wanjye\
-Niba ahuhinda kandi umusanga ntukabikangwe\
-Ujye umpamagara nanjye nze tujye tujyana\
-Nihashira iminsi azigorora umureba\
-Niba kandi usanga ari wowe ujya umuhunga\
-Ujye unyambaza nkuvure nawe uri umurwayi\
-Muhumure naratsinze nimika urukundo\
+Murizihirane cyane mumenye ko undi ari umwana wanjye<br/>
+Niba ahuhinda kandi umusanga ntukabikangwe<br/>
+Ujye umpamagara nanjye nze tujye tujyana<br/>
+Nihashira iminsi azigorora umureba<br/>
+Niba kandi usanga ari wowe ujya umuhunga<br/>
+Ujye unyambaza nkuvure nawe uri umurwayi<br/>
+Muhumure naratsinze nimika urukundo<br/>
 Ntihagire ikibakanga we
 
-Murumve twana twanjye nabaraze urukundo\
-Murarugire intego mwese aho mujya hose\
-Rubabere umutako mwiza uhora ubaranga\
-Ari amanywa ari na nijoro\
+Murumve twana twanjye nabaraze urukundo<br/>
+Murarugire intego mwese aho mujya hose<br/>
+Rubabere umutako mwiza uhora ubaranga<br/>
+Ari amanywa ari na nijoro<br/>
 Ntihagire ikibakanga we
 
-Murankurikire cyane munyige intambwe, mumenye ingendo\
-Muraze neza mutikanga nk’abanyabwoba\
-Mwikamate icyeza mukurikire icyiza\
-Mufatane urunana munsange mukeye\
-Mwizihirwe muberwe nzakomeza mbarinde\
-Nzafata mu mugongo ahababaye mpakande\
-Muhumure naratsinze nimika urukundo\
+Murankurikire cyane munyige intambwe, mumenye ingendo<br/>
+Muraze neza mutikanga nk’abanyabwoba<br/>
+Mwikamate icyeza mukurikire icyiza<br/>
+Mufatane urunana munsange mukeye<br/>
+Mwizihirwe muberwe nzakomeza mbarinde<br/>
+Nzafata mu mugongo ahababaye mpakande<br/>
+Muhumure naratsinze nimika urukundo<br/>
 Ntihagire ikibakanga we
 
-Murumve twana twanjye nabaraze urukundo\
-Murarugire intego mwese aho mujya hose\
-Rubabere umutako mwiza uhora ubaranga\
-Ari amanywa ari na nijoro\
+Murumve twana twanjye nabaraze urukundo<br/>
+Murarugire intego mwese aho mujya hose<br/>
+Rubabere umutako mwiza uhora ubaranga<br/>
+Ari amanywa ari na nijoro<br/>
 Ntihagire ikibakanga we

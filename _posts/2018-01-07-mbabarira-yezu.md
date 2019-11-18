@@ -4,57 +4,57 @@ layout: post
 title: "Mbabarira Yezu by Rugamba Cyprien ft Amasimbi n’amakombe"
 categories: Rugamba Cyprien
 ---
-Mbabarira Yezu, Mucunguzi\
-Kuko ntakwituye ineza ungirira\
-Waritanze ngo nkire\
+Mbabarira Yezu, Mucunguzi<br/>
+Kuko ntakwituye ineza ungirira<br/>
+Waritanze ngo nkire<br/>
 Nkanga nkitera ibisare
 
-Naguciriye mu maso uri Imana\
-Nagutamirije amahwa uri Umwami\
-Nakubambye ku giti\
+Naguciriye mu maso uri Imana<br/>
+Nagutamirije amahwa uri Umwami<br/>
+Nakubambye ku giti<br/>
 Aho kunca ungira inshuti
 
-Mbabarira Yezu, Mucunguzi\
-Kuko ntakwituye ineza ungirira\
-Waritanze ngo nkire\
+Mbabarira Yezu, Mucunguzi<br/>
+Kuko ntakwituye ineza ungirira<br/>
+Waritanze ngo nkire<br/>
 Nkanga nkitera ibisare
 
-Mbabarira Mwami w’impuhwe nyinshi\
-Wantoje kugusanga nkagutana\
-Nakuguranye iby’iyi si\
+Mbabarira Mwami w’impuhwe nyinshi<br/>
+Wantoje kugusanga nkagutana<br/>
+Nakuguranye iby’iyi si<br/>
 Tugasiganwa unshyamura
 
-Mbabarira Yezu, Mucunguzi\
-Kuko ntakwituye ineza ungirira\
-Waritanze ngo nkire\
+Mbabarira Yezu, Mucunguzi<br/>
+Kuko ntakwituye ineza ungirira<br/>
+Waritanze ngo nkire<br/>
 Nkanga nkitera ibisare
 
-Nje ngusanga muganga ngo umvura imvugo\
-Niyo niha abandi mbavuga nabi\
-Aho kunca urwo rurimi\
+Nje ngusanga muganga ngo umvura imvugo<br/>
+Niyo niha abandi mbavuga nabi<br/>
+Aho kunca urwo rurimi<br/>
 Uhore unyibutsa kwicuza
 
-Mbabarira Yezu, Mucunguzi\
-Kuko ntakwituye ineza ungirira\
-Waritanze ngo nkire\
+Mbabarira Yezu, Mucunguzi<br/>
+Kuko ntakwituye ineza ungirira<br/>
+Waritanze ngo nkire<br/>
 Nkanga nkitera ibisare
 
-Wansabye guceceka ngo nkumve\
-Aho kukumva nkakurenza urusaku\
-Ukankomanga ubutitsa\
+Wansabye guceceka ngo nkumve<br/>
+Aho kukumva nkakurenza urusaku<br/>
+Ukankomanga ubutitsa<br/>
 Ku mutima ngo nibuke
 
-Mbabarira Yezu, Mucunguzi\
-Kuko ntakwituye ineza ungirira\
-Waritanze ngo nkire\
+Mbabarira Yezu, Mucunguzi<br/>
+Kuko ntakwituye ineza ungirira<br/>
+Waritanze ngo nkire<br/>
 Nkanga nkitera ibisare
 
-Nzamamaza ingoma yawe yogere\
-Nzajya nitaba ndatinze aho unshaka\
-Nsabye ingabire ituma\
+Nzamamaza ingoma yawe yogere<br/>
+Nzajya nitaba ndatinze aho unshaka<br/>
+Nsabye ingabire ituma<br/>
 Ngutega amatwi nkumvira
 
-Mbabarira Yezu, Mucunguzi\
-Kuko ntakwituye ineza ungirira\
-Waritanze ngo nkire\
+Mbabarira Yezu, Mucunguzi<br/>
+Kuko ntakwituye ineza ungirira<br/>
+Waritanze ngo nkire<br/>
 Nkanga nkitera ibisare

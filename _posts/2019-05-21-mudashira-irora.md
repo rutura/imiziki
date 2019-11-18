@@ -4,47 +4,47 @@ layout: post
 title: "Mudashira irora by Abatangampundu"
 categories: Abatangampundu
 ---
-Mudashira irora, shenge urabehooo\
-Iki cyuho uduteye mu muryangooo\
+Mudashira irora, shenge urabehooo<br/>
+Iki cyuho uduteye mu muryangooo<br/>
 Kizadutera irungu ry’imyaka ibihumbiii
 
-(Babyeyi mweee) Babyeyi mwabyaye mugaheka\
-Namwe nshuti z’inkora mutima\
-Nidufatanye twese tumuguyaguye\
+(Babyeyi mweee) Babyeyi mwabyaye mugaheka<br/>
+Namwe nshuti z’inkora mutima<br/>
+Nidufatanye twese tumuguyaguye<br/>
 Shenge atarira, adatsigimba tukarira twese
 
-Wicika intege, oya wibabaraaa\
-Dushyize hamwe ngo tuguhozeee\
+Wicika intege, oya wibabaraaa<br/>
+Dushyize hamwe ngo tuguhozeee<br/>
 Tukugire inama, ihorereee
 
-(Babyeyi mweee) Babyeyi mwabyaye mugaheka\
-Namwe nshuti z’inkora mutima\
-Nidufatanye twese tumuguyaguye\
+(Babyeyi mweee) Babyeyi mwabyaye mugaheka<br/>
+Namwe nshuti z’inkora mutima<br/>
+Nidufatanye twese tumuguyaguye<br/>
 Shenge atarira, adatsigimba tukarira twese
 
-Wihangayika, uzakomeza uteteee\
-Ni umukunzi usanze azagutoneshaaa\
+Wihangayika, uzakomeza uteteee<br/>
+Ni umukunzi usanze azagutoneshaaa<br/>
 Reka rwose iyo ugiye ntuzagira irunguuu
 
-(Babyeyi mweee) Babyeyi mwabyaye mugaheka\
-Namwe nshuti z’inkora mutima\
-Nidufatanye twese tumuguyaguye\
+(Babyeyi mweee) Babyeyi mwabyaye mugaheka<br/>
+Namwe nshuti z’inkora mutima<br/>
+Nidufatanye twese tumuguyaguye<br/>
 Shenge atarira, adatsigimba tukarira twese (2)
 
-Ujye umenya urugo, menye uwagushatseee\
-Uzamuguyaguye, azasusurukeee\
+Ujye umenya urugo, menye uwagushatseee<br/>
+Uzamuguyaguye, azasusurukeee<br/>
 Ntazabirenza amaso, azagushimira
 
-(Babyeyi mweee) Babyeyi mwabyaye mugaheka\
-Namwe nshuti z’inkora mutima\
-Nidufatanye twese tumuguyaguye\
+(Babyeyi mweee) Babyeyi mwabyaye mugaheka<br/>
+Namwe nshuti z’inkora mutima<br/>
+Nidufatanye twese tumuguyaguye<br/>
 Shenge atarira, adatsigimba tukarira twese
 
-Muzashyire hamwe, muzanezererwaaa\
-Mushyigikirane mu budahemukaaa\
+Muzashyire hamwe, muzanezererwaaa<br/>
+Mushyigikirane mu budahemukaaa<br/>
 Muzirinde amabwire asenya imiryangooo
 
-(Babyeyi mweee) Babyeyi mwabyaye mugaheka\
-Namwe nshuti z’inkora mutima\
-Nidufatanye twese tumuguyaguye\
+(Babyeyi mweee) Babyeyi mwabyaye mugaheka<br/>
+Namwe nshuti z’inkora mutima<br/>
+Nidufatanye twese tumuguyaguye<br/>
 Shenge atarira, adatsigimba tukarira twese (2)

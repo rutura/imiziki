@@ -4,90 +4,90 @@ layout: post
 title: "Akabyino ka nyogokuru by Rugamba Cyprien ft Amasimbi n’amakombe"
 categories: Rugamba Cyprien
 ---
-Akabyino ka nyogokuru\
-Nzajya nkabyina nongere\
-Ngacurange ngacurire\
-Ngacinye nongeranyaaa, aaah aaah aaah\
-Maze nsimbuke nsubire\
-Amajwi menshi meza nyasobeke\
-Ndushe insengo babariburiye\
+Akabyino ka nyogokuru<br/>
+Nzajya nkabyina nongere<br/>
+Ngacurange ngacurire<br/>
+Ngacinye nongeranyaaa, aaah aaah aaah<br/>
+Maze nsimbuke nsubire<br/>
+Amajwi menshi meza nyasobeke<br/>
+Ndushe insengo babariburiye<br/>
 Aba kera bagize indahiro
 
 Nzabyina mwizihire
 
-Ubwo yashaje ubu akansiga\
-Nzagatungaho urwibutso\
-Mbakoranye abo tungana\
-Nkaririmbe bakamfasheee, eeeh\
-Mbahugure mbabwirize\
-Ko umubyeyi wateze urugori\
-Izina rye ritabura kivuga\
+Ubwo yashaje ubu akansiga<br/>
+Nzagatungaho urwibutso<br/>
+Mbakoranye abo tungana<br/>
+Nkaririmbe bakamfasheee, eeeh<br/>
+Mbahugure mbabwirize<br/>
+Ko umubyeyi wateze urugori<br/>
+Izina rye ritabura kivuga<br/>
 Abo yabyaye tumubyinirira
 
 Nzabyina mwizihire
 
-Nzamukumbura mwibuke\
-Nzajya nibuka narize\
-Uko yanteruraga akampoza\
-Akampa inka zitabarikaaa, aaah aaah aaah\
-N’ubwo atunze inyana imwe iyi\
-Akayirebamo ubushyo amagana\
-Ngo abe yabona nshira amaganya\
+Nzamukumbura mwibuke<br/>
+Nzajya nibuka narize<br/>
+Uko yanteruraga akampoza<br/>
+Akampa inka zitabarikaaa, aaah aaah aaah<br/>
+N’ubwo atunze inyana imwe iyi<br/>
+Akayirebamo ubushyo amagana<br/>
+Ngo abe yabona nshira amaganya<br/>
 Ngarure umucyo nshire icyusa
 
 Nzabyina mwizihire
 
-Niba hirya iyo bumva\
-Nzajya njya aho yararaga\
-Ndenze ijwi ndangurure\
-Muririmbire akabyinooo, oooh oooh\
-Ngahe ibitambwe by’ibitego\
-Mu bikango akunda mpakomeze\
-Aho yagiye hose mumare ipfa\
+Niba hirya iyo bumva<br/>
+Nzajya njya aho yararaga<br/>
+Ndenze ijwi ndangurure<br/>
+Muririmbire akabyinooo, oooh oooh<br/>
+Ngahe ibitambwe by’ibitego<br/>
+Mu bikango akunda mpakomeze<br/>
+Aho yagiye hose mumare ipfa<br/>
 Ry’umudiho ubwe yanyigishije
 
 Nzabyina mwizihire
 
-Agacuma yansigiye\
-Nzagashakira akanago\
-Nkamanike ngakomeze\
-Ku rubariro mu ruhamooo, oooh oooh oooh\
-Rw’inzu ye yansigiye\
-Maze umwanzi ccg se umurozi\
-Bahatinye bubahe umurage\
+Agacuma yansigiye<br/>
+Nzagashakira akanago<br/>
+Nkamanike ngakomeze<br/>
+Ku rubariro mu ruhamooo, oooh oooh oooh<br/>
+Rw’inzu ye yansigiye<br/>
+Maze umwanzi ccg se umurozi<br/>
+Bahatinye bubahe umurage<br/>
 Uwo mubyeyi yanyihereye
 
 Nzabyina mwizihire
 
-Umweyo we yakubuzaga\
-Nzawucuma nywuhungure\
-Nywegeke aho yawusize\
-Hagana ku ruhimbiii, iiih iiih iiih\
-Ni ho yansabye gushyira\
-Ibyo yakundaga bimunogeye\
-Nk’uruhindu n’inkongoro\
+Umweyo we yakubuzaga<br/>
+Nzawucuma nywuhungure<br/>
+Nywegeke aho yawusize<br/>
+Hagana ku ruhimbiii, iiih iiih iiih<br/>
+Ni ho yansabye gushyira<br/>
+Ibyo yakundaga bimunogeye<br/>
+Nk’uruhindu n’inkongoro<br/>
 N’akabando kamuramiraga
 
 Nzabyina mwizihire
 
-Aho yaryamaga nubaha\
-Nzasasaho udusuna\
-Twiza tuva mu Kinyaga\
-Naze ibyahi by’ibihuraaa, aaah aaah aaah\
-Maze mpashyire inyegamo\
-N’umurere ubereye iyo ngoro\
-Y’umubyeyi wanyihereye\
+Aho yaryamaga nubaha<br/>
+Nzasasaho udusuna<br/>
+Twiza tuva mu Kinyaga<br/>
+Naze ibyahi by’ibihuraaa, aaah aaah aaah<br/>
+Maze mpashyire inyegamo<br/>
+N’umurere ubereye iyo ngoro<br/>
+Y’umubyeyi wanyihereye<br/>
 Nifuza gushimisha
 
 Nzabyina mwizihire
 
-Urugoli yansigiye\
-Iryo kamba ryamwizihiye\
-Nzaritakaho urusaro\
-Rwiza ruryizihiyeee, eeeh eeeh eeeh\
-Ndyubakire n’agatara\
-Keza gatatse umurayi\
-Mpateure imitako inoze\
+Urugoli yansigiye<br/>
+Iryo kamba ryamwizihiye<br/>
+Nzaritakaho urusaro<br/>
+Rwiza ruryizihiyeee, eeeh eeeh eeeh<br/>
+Ndyubakire n’agatara<br/>
+Keza gatatse umurayi<br/>
+Mpateure imitako inoze<br/>
 Irusha izuba kubengerana
 
 Nzabyina mwizihire (5)

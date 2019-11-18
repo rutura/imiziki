@@ -4,66 +4,66 @@ layout: post
 title: "Umugeni mwiza by Rugamba Cyprien ft Amasimbi n’amakombe"
 categories: Rugamba Cyprien
 ---
-Burya umugeni mwiza ni uhora asusurutse\
-Ni useka adasakuza cg asahinda\
-Ni umwe usesuye, ufite inkesha ku maso\
-Ni uw’imvugo nziza usuka ineza aho atuye\
+Burya umugeni mwiza ni uhora asusurutse<br/>
+Ni useka adasakuza cg asahinda<br/>
+Ni umwe usesuye, ufite inkesha ku maso<br/>
+Ni uw’imvugo nziza usuka ineza aho atuye<br/>
 Ni uvuga urukundo, urwango akaruhungaaa, aaah aaah aaah
 
 Mwana wanjye ibyo jya ubimenya
 
-Burya umugeni mwiza ni uzi iby’iheru\
-Haba mu gikoni cg mu gikali\
-Ahora akangayo umweyo cg umwenyegezo\
-Ntahuga ngo arambye maze izuba rirenge\
+Burya umugeni mwiza ni uzi iby’iheru<br/>
+Haba mu gikoni cg mu gikali<br/>
+Ahora akangayo umweyo cg umwenyegezo<br/>
+Ntahuga ngo arambye maze izuba rirenge<br/>
 Yikubita agashyi akiyungura inamaaa, aaah aaah aaah
 
 Mwana wanjye ibyo jya ubimenya
 
-Burya umugeni mwiza ni uzi isuku hose\
-Ugasanga inzu atuye itatse umuteguro\
-Mu irebe ry’umuryango cg mu ruhongore\
-Hose akahahungura ntihatambe n’agatotsi\
+Burya umugeni mwiza ni uzi isuku hose<br/>
+Ugasanga inzu atuye itatse umuteguro<br/>
+Mu irebe ry’umuryango cg mu ruhongore<br/>
+Hose akahahungura ntihatambe n’agatotsi<br/>
 Waba uharabutswe, ugasanga haranozeee, eeeh eeeh eeeh
 
 Mwana wanjye ibyo jya ubimenya
 
-Burya umugeni mwiza ni usasa asusurutsa\
-Yirinda urukangaga rumaze kuba ingamba\
-Asasa udusuna akarenzaho ibihura\
-Waharyama ugaherako usinzira ukageza ejo\
+Burya umugeni mwiza ni usasa asusurutsa<br/>
+Yirinda urukangaga rumaze kuba ingamba<br/>
+Asasa udusuna akarenzaho ibihura<br/>
+Waharyama ugaherako usinzira ukageza ejo<br/>
 Maze wakanguka, ukaba uziko ari imenaaa, aaah aaah aaah
 
 Mwana wanjye ibyo jya ubimenya
 
-Burya umugeni mwiza ni umenya iby’umugabo\
-Byaba iby’ubuhinzi cg iby’amatungo\
-Ndetse amenya n’imali, iyo hanze no mu rugo\
-Nta tungo adasura, nta mbuto adahinga\
+Burya umugeni mwiza ni umenya iby’umugabo<br/>
+Byaba iby’ubuhinzi cg iby’amatungo<br/>
+Ndetse amenya n’imali, iyo hanze no mu rugo<br/>
+Nta tungo adasura, nta mbuto adahinga<br/>
 Iza kera cg se iz’ubuuu, uuuh uuuh uuuh
 
 Mwana wanjye ibyo jya ubimenya
 
-Burya umugeni mwiza ni uzi kujya inama\
-Haba ari mu byago cg ibyishimo\
-Wakosa ati ibi ni ibiki, ese wabiretse\
-Waba utinda iyo hanze ati: jya wibuka utahe\
+Burya umugeni mwiza ni uzi kujya inama<br/>
+Haba ari mu byago cg ibyishimo<br/>
+Wakosa ati ibi ni ibiki, ese wabiretse<br/>
+Waba utinda iyo hanze ati: jya wibuka utahe<br/>
 Agutoza kubana utagombye kuzimiraaa, aaah aaah aaah
 
 Mwana wanjye ibyo jya ubimenya
 
-Burya umugeni mwiza yibanda iwe cyane\
-Ntamenya kubunga yiha uruzerero\
-Nk’abindangare bihata umuhanda\
-Ntajya ajya mu mazimwe, ntabarizwa mu nzoga\
+Burya umugeni mwiza yibanda iwe cyane<br/>
+Ntamenya kubunga yiha uruzerero<br/>
+Nk’abindangare bihata umuhanda<br/>
+Ntajya ajya mu mazimwe, ntabarizwa mu nzoga<br/>
 Asibana ataha iwe, ntakihasumbaaa, aaah aaah aaah
 
 Mwana wanjye ibyo jya ubimenyaba
 
-Burya umugeni mwiza ni ubyara agaheka\
-Akarera yaba acukije ingobyi ikajya imugongo\
-Arabonsa bagakura, atabahase amata y’ifu\
-Maze izo nkurikirane, zikabyiruka ari ingogo\
+Burya umugeni mwiza ni ubyara agaheka<br/>
+Akarera yaba acukije ingobyi ikajya imugongo<br/>
+Arabonsa bagakura, atabahase amata y’ifu<br/>
+Maze izo nkurikirane, zikabyiruka ari ingogo<br/>
 Wazireba ukumva unogeweee, eeeh eeeh eeeh
 
 Mwana wanjye ibyo jya ubimenya
