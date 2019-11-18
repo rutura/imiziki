@@ -1,0 +1,70 @@
+---
+permalink : /abakobwa-biwacu-by-abatangampundu/
+layout: post
+title: "Abakobwa b’iwacu by Abatangampundu"
+categories: Abatangampundu
+---
+Abakobwa b’iwacu<br/>
+Abakobwa b’iwacu ni beza cyane<br/>
+Ntibagira uburyarya<br/>
+Bahorana urugwiro<br/>
+Abakobwa b’iwacu barakagwira
+
+Yeeeee, urasohoke udatinya<br/>
+Yeee useruke bakurebe<br/>
+Maze shenge ugarike ibyano<br/>
+Shenge inseko yabo irera<br/>
+Nyabusa nsekera ngushushanye<br/>
+Shenge isekere ngushushanye kandi nkugabire gaju
+
+Abakobwa b’iwacu<br/>
+Babyuka mu gitondo iki cy’umuseso<br/>
+Bamwe bafashe imyeyo<br/>
+Abandi boza ibyansi<br/>
+Abakobwa b’iwacu barakagwira
+
+Yeeeee, urasohoke udatinya<br/>
+Yeee useruke bakurebe<br/>
+Maze shenge ugarike ibyano<br/>
+Shenge inseko yabo irera<br/>
+Nyabusa nsekera ngushushanye<br/>
+Shenge isekere ngushushanye kandi nkugabire gaju
+
+Abakobwa b’iwacu<br/>
+Bafatanya n’abandi babo guhinga<br/>
+Na mbere yo guhinga<br/>
+Shenge bahirira inyana<br/>
+Abakobwa b’iwacu barakagwira
+
+Yeeeee, urasohoke udatinya<br/>
+Yeee useruke bakurebe<br/>
+Maze shenge ugarike ibyano<br/>
+Shenge inseko yabo irera<br/>
+Nyabusa nsekera ngushushanye<br/>
+Shenge isekere ngushushanye kandi nkugabire gaju (2)
+
+Abakobwa b’iwacu<br/>
+Mu kuruhuka kwabo baboha imisambi<br/>
+Babifatanya kandi<br/>
+Shenge n’ibyo mu gikari<br/>
+Abakobwa b’iwacu barakagwira
+
+Yeeeee, urasohoke udatinya<br/>
+Yeee useruke bakurebe<br/>
+Maze shenge ugarike ibyano<br/>
+Shenge inseko yabo irera<br/>
+Nyabusa nsekera ngushushanye<br/>
+Shenge isekere ngushushanye kandi nkugabire gaju
+
+Abakobwa b’iwacu<br/>
+Uzaze mbakwereke wihere amaso<br/>
+Abakobwa b’iwacu<br/>
+Shenge ni abatarutwa<br/>
+Abakobwa b’iwacu barakagwira<br/>
+
+Yeeeee, urasohoke udatinya<br/>
+Yeee useruke bakurebe<br/>
+Maze shenge ugarike ibyano<br/>
+Shenge inseko yabo irera<br/>
+Nyabusa nsekera ngushushanye<br/>
+Shenge isekere ngushushanye kandi nkugabire gaju (2)
