@@ -1,18 +1,9 @@
 ---
 layout: page
-title: About
+title: Turi ba nde?
 permalink: /about/
 ---
 
-This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](https://jekyllrb.com/)
+imiziki.com ni igihangano cyakozwe kugirango cyoroshye uburyo bwo kubona amagambo (lyrics) y'indirimbo nyarwanda hifashishijwe ikoranabuhanga rigezweho rya interineti. Cyubatswe n'abanyarwanda bari bamaze kubona ko  kubona amagambo y'indirimbo runaka igihe ushatse kuyiririmba byari ingorabahizi.
 
-You can find the source code for Minima at GitHub:
-[jekyll][jekyll-organization] /
-[minima](https://github.com/jekyll/minima)
-
-You can find the source code for Jekyll at GitHub:
-[jekyll][jekyll-organization] /
-[jekyll](https://github.com/jekyll/jekyll)
-
-
-[jekyll-organization]: https://github.com/jekyll
+Ikigega cyacu kirimo indirimbo nyarwanda z'ubwoko bwose uhereye kuza kera zo mu bitaramo, imbyino, iz'Imana, karahanyuze ndetse n'izo mu gihe kigezweho. Indirimbo zacu zikwirakwira mu buryo bwinshi harimo guturuka mu search engine nka google cyangwa yahoo ndetse no mu bakunzi b'indirimbo bagenda bazigabagabana mu mbuga nkoranyambaga nka whatsap, facebook, twitter n'izindi.
