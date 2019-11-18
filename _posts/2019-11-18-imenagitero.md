@@ -4,8 +4,8 @@ layout: post
 title: "Imenagitero by Rugamba Cyprien ft Amasimbi n’amakombe"
 categories: Rugamba Cyprien
 ---
-Imenagitero twabyirukanye nk’impanga
-Imenagitero twabyaranye uw’uburiza
+Imenagitero twabyirukanye nk’impanga<br/>
+Imenagitero twabyaranye uw’uburiza<br/>
 Imenagitero twabyaranye n’ubuheta
 Imenagitero twabyaranye ubuheture\
 Yaratabaye, ararwana ishyaka ishyanga\
